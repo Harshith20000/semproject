@@ -1,1 +1,1 @@
-
+The ideal temperature, humidity, and rainfall conditions for crops like rice, maize, groundnut, and cotton in Bangalore can vary slightly depending on the specific variety of the crop. However, here are the general ideal conditions for these crops in Bangalore
